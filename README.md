@@ -1,1 +1,0 @@
-# consultpandia.github.io
